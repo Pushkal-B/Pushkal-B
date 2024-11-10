@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pushkal-B
-- 👀 I’m interested in PROGRAMMING AND CREATING.
-- 🌱 I’m currently learning computer engeneering.
-- 💞️ I’m looking to collaborate on new ethical hacking tools.
+- 👀 I’m interested in Proactive Creation!
+- 🌱 I’m currently learning Computer Science.
+- 💞️ I’m looking to hack you!
 
